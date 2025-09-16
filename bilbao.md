@@ -31,6 +31,9 @@
 - Highlights: Scenic walks along the Nervión River.
 - Best For: Architecture, photography, relaxing strolls.
 
+### 7. Vizcaya Bridge (Puente Colgante)
+- Get tickets there
+
 ## Day Trip Destinations
 
 ### 1. San Juan de Gaztelugatxe
@@ -62,6 +65,7 @@
 - Travel Time: ~1.5 hours
 - Highlights: UNESCO Geopark, dramatic rock formations, coastal hikes.
 - Best For: Geology enthusiasts, hikers, scenic views.
+
 
 ## Accommodation Tip
 Stay in Bilbao as your base. It offers:
