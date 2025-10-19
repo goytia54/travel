@@ -156,3 +156,6 @@ Pamplona is the capital of Navarre in northern Spain, famous for the San Fermín
 - Best time to visit: Spring or Autumn for mild weather.
 - Wear comfortable shoes — Pamplona is very walkable.
 - Try local specialties: white asparagus, chistorra sausage, and sheep’s milk cheese.
+
+### castles 
+https://torreloizaga.com/en/torre-loizaga/
