@@ -157,5 +157,5 @@ Pamplona is the capital of Navarre in northern Spain, famous for the San Fermín
 - Wear comfortable shoes — Pamplona is very walkable.
 - Try local specialties: white asparagus, chistorra sausage, and sheep’s milk cheese.
 
-### castles 
+## Castles 
 https://torreloizaga.com/en/torre-loizaga/
