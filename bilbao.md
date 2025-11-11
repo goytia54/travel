@@ -147,15 +147,48 @@ Pamplona is the capital of Navarre in northern Spain, famous for the San Fermín
 - Spring and Autumn local fiestas
 - Music and food events year-round
 
-## Day Trips from Pamplona
-- **San Sebastián** – Beaches and gourmet food (~1 hour)
-- **La Rioja** – Wine region and Logroño (~1.5 hours)
-- **Bardenas Reales** – Semi-desert natural park (~1 hour)
+## Castles 
+https://torreloizaga.com/en/torre-loizaga/
+
+# Wednesday
+* Get the  rental car
+* Check in hotel
+* https://torreloizaga.com/en/visits/
+* Vizcaya Bridge (Puente Colgante)
+
+# Thursday
+* Museum (Guggenheim Museum Bilbao)
+* Casco Viejo (Old Town)
+
+# Friday
+* Coast
+  * Zumaia (Flysch Cliffs)
+  * Lekeitio
+  
+# Saturday
+* Mercado de la Ribera
+* Butrón Castle
+
+# Sunday 
+* Church
+* Bermeo & Mundaka
+* San Juan de Gaztelugatxe
+
+# Monday
+* Pamplona
+ * Planetarium (Yamaguchi Park)
+ * Monumento al Encierro
+ * Taconera Gardens
+ * Ciudadela de Pamplona
+ * Pamplona Cathedral
+ * Plaza del Castillo
+ * Museo Universidad de Navarra
 
 ## Tips
 - Best time to visit: Spring or Autumn for mild weather.
 - Wear comfortable shoes — Pamplona is very walkable.
 - Try local specialties: white asparagus, chistorra sausage, and sheep’s milk cheese.
 
-## Castles 
-https://torreloizaga.com/en/torre-loizaga/
+# Tuesday
+* We Leave
+
