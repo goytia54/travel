@@ -151,14 +151,15 @@ Pamplona is the capital of Navarre in northern Spain, famous for the San Fermín
 https://torreloizaga.com/en/torre-loizaga/
 
 # Wednesday
-* Get the  rental car
+* Get the rental car
 * Check in hotel
-* https://torreloizaga.com/en/visits/
+* Castle with the cars https://torreloizaga.com/en/visits/
 * Vizcaya Bridge (Puente Colgante)
 
 # Thursday
 * Museum (Guggenheim Museum Bilbao)
 * Casco Viejo (Old Town)
+* Football stadium
 
 # Friday
 * Coast
@@ -170,9 +171,10 @@ https://torreloizaga.com/en/torre-loizaga/
 * Butrón Castle
 
 # Sunday 
-* Church
-* Bermeo & Mundaka
-* San Juan de Gaztelugatxe
+* Church (Aguirre Lehendakariaren Etorb. 1 Bilbao 48014 Vizcaya)
+* Coast
+  * Bermeo & Mundaka
+  * San Juan de Gaztelugatxe
 
 # Monday
 * Pamplona
